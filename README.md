@@ -1,2 +1,2 @@
 # 5-Repetitive-Tasks-Secretly-Killing-Your-Profitability-Gonzo-Digital
-Repetitive tasks can silently drain your business profits. With no code automation services, you can eliminate manual work, streamline processes, and boost efficiency. From repetitive task automation to automate invoicing, automation helps save time, reduce errors, and focus on growth. 
+Repetitive tasks can silently drain your business profits. With no code automation services-https://gonzo.co.in/blog/automate-repetitive-tasks/, you can eliminate manual work, streamline processes, and boost efficiency. From repetitive task automation to automate invoicing, automation helps save time, reduce errors, and focus on growth. 
